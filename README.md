@@ -1,1 +1,1 @@
-# 13th-Feb-Assignmnet-PW-Skills-Data-Science-Course
+# 13th-Feb-Assignment-PW-Skills-Data-Science-Course
